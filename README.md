@@ -12,3 +12,8 @@
 > 𓏲 ⭑ ๋࣭  strawpage >> https://brandozolog1.straw.page/ ࣪𓏧 <img src="https://i.imgur.com/zN10Ihs.gif">
                                      
 > <img src="https://i.imgur.com/Cs5VA4U.png"> ೀ <img src="https://i.imgur.com/tFAPZ4X.png">
+
+> 𓏧𓏧𓏧
+
+> <img src="https://i.imgur.com/8qCfZae.png"> 
+> hi kyle
