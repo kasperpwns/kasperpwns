@@ -1,4 +1,4 @@
-<img src="https://i.imgur.com/f3OXCeV.png"><img src="https://i.imgur.com/f3OXCeV.png">
+<img src="https://i.imgur.com/rUX5eQx.png)">
 <img src="https://i.imgur.com/ckDBkuG.png">
 
 > ⸝⸝ . <img src="https://i.imgur.com/dhCWSmV.gif">
