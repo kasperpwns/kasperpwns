@@ -9,11 +9,8 @@
 
 > * · ๋࣭ ⭑ big roblox fannn (..◜ᴗ◝..) c+h at all times unless specified 𓏧 <img src="https://cdn.discordapp.com/attachments/1282872358301864070/1482177229692735518/tumblr_a1ac347edb5a9b696f6a6a93b0633bfa_8b766898_75.webp?ex=69b6009d&is=69b4af1d&hm=5980b142c6f1b32913b7ad44e084607605b374d16d51413b1faefa26596ea456&)">
 
-> * 𓏲 ⭑ ๋࣭  strawpage >> https://lsmfof.straw.page/ 𓏧 <img src="https://cdn.discordapp.com/attachments/1282872358301864070/1482177228187111535/eaa07048.gif?ex=69b6009c&is=69b4af1c&hm=10ac9a24a98725708dbd69e2121e1210089b87d03ce3abc8856ef02f8613b21d&">
+> * 𓏲 ⭑ ๋࣭  strawpage >> https://crunkcored.straw.page/ 𓏧 <img src="https://cdn.discordapp.com/attachments/1282872358301864070/1482177228187111535/eaa07048.gif?ex=69b6009c&is=69b4af1c&hm=10ac9a24a98725708dbd69e2121e1210089b87d03ce3abc8856ef02f8613b21d&">
                                      
 > <img src="https://i.imgur.com/SxeYwgT.png"> . <img src="https://i.imgur.com/joegwFv.png"> . <img src="https://i.imgur.com/RsNojvL.png">
 
 > 𓏧𓏧𓏧
-
-> <img src="https://i.imgur.com/8qCfZae.png"> 
-> GAYGAYGAYGAYGAYGAYGAYGAYGAYGAY
